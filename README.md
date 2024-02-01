@@ -1,12 +1,14 @@
 # 👋 Hello
 
-I recruit insanely talented, hardworking, out of the box thinking individuals to work at CSGOEmpire and at our soon to launch crypto casino, Duel. There’s plenty of room for growth, experimentation, and leadership for those that fit our ethos and can bring our vision to life. If that’s what you’re looking for, let’s chat!
+I recruit insanely talented, hardworking, out of the box thinking individuals to work at CSGOEmpire and at our soon to launch crypto casino, Duel. There’s plenty of room for growth, experimentation, and leadership for those that fit our ethos and can bring our vision to life. Experience in the CSGO or crypto/web3 spaces is especially appreciated!
+
+# 🎲 About CSGOEmpire
 
 Empire exists as the antidote to scammers within the casino industry. Our industry is highly profitable, which naturally attracts shady characters of various kinds, making the space rife with lying and cheating, often in deeply sophisticated ways. But we believe that given enough years, a model based on excellence, simplicity, and transparency will surpass any grift, scam, or short-term money grab that the CSGO skin gambling scene is so familiar with. 
 
 Both in terms of ethics and money, operating honestly is the +EV play!
 
-# 🎲 Your Upside 
+# 🙌 Your Upside 
 - Joining us means standing against those that look to cheat and steal from our customers and our community.
 - Fully remote and async, just ensure some overlap with the standard Monday-Friday, 9 to 5 Central European business hours.
 - Salary ranges are clearly outlined for each role.
